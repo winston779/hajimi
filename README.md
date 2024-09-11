@@ -1,6 +1,6 @@
 # 哈基米机场官网地址
 
-最新地址：[hajimi.icu](https://a.hajimi.icu/46331ae4658d4c278aa4aec61c344e1e/NjQ3ZGI5)
+最新地址：[hajimi.icu](https://hajimi.online/#/register?v=3&p=b19cb62d8de6fae1&a=NjQ3ZGI5)
 
 ## 哈基米介绍
 
